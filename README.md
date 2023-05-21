@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Frontend Development/Designing**
 
-- 📫 How to reach me **roshanpaste7503@gmail.com**
+- 📫 How to reach me? 👉 **roshanpaste7503@gmail.com**
 
 - ⚡ Fun fact **I'm introvert**
 
